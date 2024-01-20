@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...Working interior and advertising projects
 - 📫 How to reach me ..nehasivanesandesign@gmail.com 
 - 😄 Pronouns: ...She/Her
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ...Bengals rule
 
 <!---
 Nehasivanesandesign/Nehasivanesandesign is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
